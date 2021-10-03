@@ -1,0 +1,1 @@
+# each player starts with
